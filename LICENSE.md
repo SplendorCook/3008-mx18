@@ -1,4 +1,4 @@
-#  
+#  Experience kaizen like never before with exclusive kaizen Scripts, the #1 Script. Includes auto-upgrade and god mode for unbeatable performance.
 
 
 
